@@ -194,7 +194,7 @@ Simulated COVID-19 statistics — daily cases, deaths, recoveries, and vaccinati
 
 - **Abdul Ahad**
 - **Abdullah Jabbar**
-- **Anonymous**
+- **Asjid**
 
 ### Group Members
 
